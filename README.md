@@ -20,4 +20,4 @@
 结语  
 高质量、稳定、安全的日本AV平台是现代用户首选。不仅拥有大量资源，还通过人性化设计和服务，让观影过程变得简单愉快。选择靠谱平台，让每一次观看都尽在掌控之中。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav01 )</span>
